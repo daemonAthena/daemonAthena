@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @daemonAthena
 - 👀 I’m interested in fan games and romhacks of nintendo classics
-- 💞️ I’m looking to collaborate on projects where I can learn new things
+- 💞️ I’m looking to collaborate on history research projects
 - 📫 How to reach me: Discord - Ælwen#6093 I'm set to always be offline so just reach out.
 
 <!---
